@@ -1,2 +1,2 @@
-# Newenz7
-Grupo de ventas de las mejores cuentas de🥵
+Newenz7
+Grupo de las mejores cuentas FF🥵
